@@ -1,1 +1,1 @@
-# selamt datang
+# selamat datang
